@@ -1,2 +1,0 @@
-# Mylady
-Para mi novia
